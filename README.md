@@ -1,2 +1,0 @@
-# about.github.io
-kenangan
